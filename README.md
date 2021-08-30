@@ -1,5 +1,14 @@
 ### Hi there 👋
 
+# Halo semua! 
+
+Perkenalkan nama saya **Dikman Satya Nugraha**.
+
+Saya seorang **IT Support** di [Kemana.com](https://www.kemana.com/).
+
+
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/dikman-satya-nugraha-b645aa1b2/)ku ya.
+
 <!--
 **dikmansn2282/dikmansn2282** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
