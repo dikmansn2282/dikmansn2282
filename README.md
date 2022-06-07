@@ -4,8 +4,6 @@
 
 Perkenalkan nama saya **Dikman Satya Nugraha**.
 
-Saya seorang **IT Support** di [Kemana.com](https://www.kemana.com/).
-
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/dikman-satya-nugraha-b645aa1b2/)ku ya.
 
