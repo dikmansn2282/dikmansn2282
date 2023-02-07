@@ -5,7 +5,7 @@
 Perkenalkan nama saya **Dikman Satya Nugraha**.
 
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/dikman-satya-nugraha-b645aa1b2/)ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/dikman-satya-nugraha-171a07260/)ku ya.
 
 
 <p align="left">
