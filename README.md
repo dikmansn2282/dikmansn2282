@@ -2,7 +2,7 @@
 
 # Halo semua! 
 
-Perkenalkan nama saya **Dikman Satya Nugraha**.
+Perkenalkan nama saya **Dikman Satya Nugraha**. Field Service Engineer di PT Excis Compliance Indonesia [Excis](https://www.excis.com/)
 
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/dikman-satya-nugraha-171a07260/)ku ya.
